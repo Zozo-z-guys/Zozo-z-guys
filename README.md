@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Zozo-z-guys
+- 👋 Hi, I’m @Zozo
 - 👀 I’m interested in singing,drawing,capoeira,theatre and robotics
 - 🌱 I’m currently learning robot rescue line
 - 📫 How to reach me:zoe.mcadam@ifea.education
